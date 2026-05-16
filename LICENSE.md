@@ -1,4 +1,4 @@
-# 
+# trader joe trading bot ultimate Bot - staking-integration and transaction-batching offers the most advanced trader joe trading bot, with staking-integration and
 
 
 
